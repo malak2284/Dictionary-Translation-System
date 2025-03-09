@@ -1,1 +1,1 @@
-Descriptions about projects are [👉 Here](https://github.com/malak2284/Private-Repos)
+Description about project [👉 Here](https://github.com/malak2284/Private-Repos)
